@@ -1,2 +1,0 @@
-# MisteryBoxFreebetUS
-🎁 MISTERY BOX ULTIMASLOT🎁
